@@ -1,16 +1,13 @@
-### Hi there 👋
+> this is re: my working style at Moneytree. 🐘
 
-<!--
-**mt-kelvintaywl/mt-kelvintaywl** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+#### Communications
 
-Here are some ideas to get you started:
+- Work Hours: 09:00 - 18:00
+- _Slack_ me anytime within my work hours 🤓
+- Emails are **probably the worst way** to reach me; I view emails as notifications at best 🙇
+- Feel free to put an event in my calendar! I'm free as long as my calendar says I am 👍
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+#### Fun Facts
+
+- Left-footed footballer, dancer with 2 left feet
+- Terrible typist (I only utilize 4 / 10 fingers when typing)
