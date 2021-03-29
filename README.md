@@ -10,5 +10,6 @@
 
 #### Fun Facts
 
+- [ENFJ personaltiy](https://www.16personalities.com/enfj-personality)
 - Left-footed footballer, dancer with 2 left feet
 - Terrible typist (I only utilize 4 / 10 fingers when typing)
