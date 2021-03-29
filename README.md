@@ -6,6 +6,7 @@
 - _Slack_ me anytime within my work hours 🤓
 - Emails are **probably the worst way** to reach me; I view emails as notifications at best 🙇
 - Feel free to put an event in my calendar! I'm free as long as my calendar says I am 👍
+- 🇬🇧 > 🇯🇵 > 🇨🇳 
 
 #### Fun Facts
 
