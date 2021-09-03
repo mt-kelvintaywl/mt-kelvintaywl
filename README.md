@@ -1,3 +1,12 @@
+#### Updates
+
+Alas, this is now an inactive account, as I am **graduating** from Moneytree, as they say here in Japan.
+
+You can nonetheless reach out to me on my personal Github account @kelvintaywl 🙇
+
+Keep on building awesome stuff 🤖 
+
+
 > this is re: my working style at Moneytree. 🐘
 
 #### Communications
